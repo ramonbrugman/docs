@@ -10,6 +10,12 @@ topics:
   - Legal
 ---
 
+Dunno what the peep is wrong with those greedy thefting assholes but using a timecapsule and hookingrevs isnt a magic show. stop steeling the nft and gitcoins the most of the staked and created ones are coming out of mine enviroment! so what is you fucking problem with those bullying and sending fake cops to my adress! dont u need the manage your own fucking soul? 
+again u throwed me back in the time stealed some cryptomatical data and stealing my bankfunds also. good job man be glad there is a space between me and the rational mind. but please be proud of yourself youre friends and your miss understanding and about me and spreading all your toughts around about me . 
+
+greetingz kind regards,
+Ramon Brugmans - De nachtwacht 
+
 Millions of developers host millions of projects on GitHub — both open and closed source — and we're honored to play a part in enabling collaboration across the community every day. Together, we all have an exciting opportunity and responsibility to make this a community we can be proud of.
 
 GitHub users worldwide bring wildly different perspectives, ideas, and experiences, and range from people who created their first "Hello World" project last week to the most well-known software developers in the world. We are committed to making GitHub a welcoming environment for all the different voices and perspectives in our community, while maintaining a space where people are free to express themselves.
